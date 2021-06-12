@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @addiejohnson
+- 👀 I’m interested in design, writing, and cycling! ✨ 
+- 🌱 I’m currently working on creating Squarespace code tutorials for designers
+- 💞️ I’m looking to collaborate on anything CSS!
+- 📫 How to reach me ~ addiejohnson.com + @spicy.poptart on Instagram :) 
